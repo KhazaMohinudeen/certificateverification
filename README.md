@@ -1,1 +1,1 @@
-Wellocme to barathiyar uiveristy
+Welcome to Barathiyar uiveristy
